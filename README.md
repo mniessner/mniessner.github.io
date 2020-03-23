@@ -1,2 +1,0 @@
-# mniessner.github.io
-Pages
